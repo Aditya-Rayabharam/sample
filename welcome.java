@@ -1,2 +1,2 @@
-Hello user welcome to my world
+Hello friend  welcome to my world
 Thankyou
